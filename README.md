@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **rmayank2004@gmail.com**
 
-- ⚡ Fun fact **I AM FUNNY**
+- ⚡ Fun fact **I AM spiritual**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
